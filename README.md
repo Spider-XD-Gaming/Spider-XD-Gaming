@@ -1,7 +1,7 @@
 - Hello.
 - I'm a self-taught coder, multi-tasking the heck out of my life.
 - I'm always active on discord, so if you want to find me, DM me.
-- Certified Internet Funnyman
+- Certified Internet Funnywoman
 - Wowie!
 
 <!---
