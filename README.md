@@ -5,6 +5,12 @@
 - Wowie!
 
 <!---
-Spider-XD-Gaming/Spider-XD-Gaming is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+Lonely, Music Addicted Workaholic.
+"Everything sucks forever." - Lori M.
+https://tinyurl.com/SpidersPronouns
+
+I'm fine...
+probably?
+
+hey mobile user :0
 --->
